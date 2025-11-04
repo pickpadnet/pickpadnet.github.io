@@ -1,3 +1,3 @@
-[Pickleball Locations](locations)
-[Pickleball Paddles](paddles)
-[Pickleball Tournaments](tournaments)
+[Pickleball Locations](locations)  
+[Pickleball Paddles](paddles)  
+[Pickleball Tournaments](tournaments)  
