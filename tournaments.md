@@ -42,6 +42,11 @@ Link: <https://pickleballkingdom.podplay.app/community/events/4c5034c3-2b01-46ff
 
 ## Friday, November 21, 2025
 
+#### Open Doubles Moneyball
+Location: Pickleball Kingdom Memphis-Germantown
+3525 Riverdale Rd, Memphis, TN 38115
+Link: <https://pickleballkingdom.podplay.app/community/events/414ce024-d5c1-4de2-81c3-79b12227049c>
+
 #### Moneyball - Intermediate Men's Doubles - DUPR Recorded
 Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211
