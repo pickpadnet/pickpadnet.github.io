@@ -23,15 +23,20 @@ Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211  
 Link: <https://pickleballkingdom.podplay.app/community/events/6d5b1df5-161d-44d4-adcb-36ee042e2894>
 
-<!--
-## Sunday, November 9, 2025
--->
 
+## Sunday, November 9, 2025
+
+#### Men's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 2.7-3.1): <https://pickleballkingdom.podplay.app/community/events/a1695949-1a11-4b0b-ba6c-ef9a2d0fb0c3>  
+Link (DUPR 3.1-3.5): <https://pickleballkingdom.podplay.app/community/events/d17183e8-0db2-433c-a0e6-9f15126b068e>  
+Link (DUPR 3.5-3.9): <https://pickleballkingdom.podplay.app/community/events/718b8560-b34f-44d8-a802-fe225d3ca8f2>  
 
 
 ## Friday, November 14, 2025
 
-### Moneyball - Advanced Mixed Doubles - NOT DUPR Recorded
+#### Moneyball - Advanced Mixed Doubles - NOT DUPR Recorded
 Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211  
 Link: <https://pickleballkingdom.podplay.app/community/events/fa205e4f-9433-4a38-b825-da6d86dfcc76>
@@ -76,7 +81,7 @@ Link: <https://pickleballkingdom.podplay.app/community/events/c2687eb4-b638-4135
 
 
 <!--
-### 
+#### 
 Location: 
 Link: 
 -->
