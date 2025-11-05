@@ -1,4 +1,4 @@
-# Tournaments
+# Pickleball Tournaments
 
 ## Friday, November 7, 2025
 
