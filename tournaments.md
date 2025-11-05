@@ -40,7 +40,14 @@ Location: Pickleball Kingdom Tigard
 16800 SW 72nd Ave, Tigard, OR 97224  
 Link: <https://pickleballkingdom.podplay.app/community/events/68ab84bf-5d23-45d5-a54e-5f631d644a5d>  
 
+## Thursday, November 13, 2025
 
+#### Men's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/00320a9c-c2f4-416e-93ae-7b9c14eab3f4>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/a16a9450-6f34-4a53-ace3-71fc1dab82b9>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/c6801a39-3013-4070-8524-0a384f8cf23b>  
 
 ## Friday, November 14, 2025
 
