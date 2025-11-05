@@ -31,14 +31,23 @@ Link: <https://pickleballkingdom.podplay.app/community/events/fa205e4f-9433-4a38
 
 ## Saturday, November 15, 2025
 
-### APA - The Tennessee Masters - PK Liability Waivers - See description for tournament registration
+#### The Dink Minor League MILP Tournament
+Location: Pickleball Kingdom Hamilton
+1100 Negron Dr, Hamilton Township, NJ 08691
+Link: <https://pickleballkingdom.podplay.app/community/events/8297985c-599a-4383-82ed-db917e17291b>
+
+#### APA - The Tennessee Masters
 Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211
 Link: <https://pickleballkingdom.podplay.app/community/events/4c5034c3-2b01-46ff-8136-b8c547551ddb>
 
-## Sunday, November 16, 2025
+## Wednesday, November 19, 2025
 
+#### Century 140+ Fall Classic Tournament
 
+Location: Pickleball Kingdom Hamilton
+1100 Negron Dr, Hamilton Township, NJ 08691
+Link: <https://pickleballkingdom.podplay.app/community/events/754d75af-a2fa-48e6-a74c-8a0d28b227f3>
 
 ## Friday, November 21, 2025
 
