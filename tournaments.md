@@ -11,7 +11,14 @@ Link: <https://pickleballkingdom.podplay.app/community/events/28f5c4e0-ea2d-4904
 
 ## Saturday, November 8, 2025
 
-### Veterans Pickleball Tournament
+#### Women's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224
+Link (DUPR 2.7-3.2): <https://pickleballkingdom.podplay.app/community/events/8fc9a912-c084-49cf-a413-709bf3bddb4e>
+Link (DUPR 3.2-3.5): <https://pickleballkingdom.podplay.app/community/events/7ef3843c-cce9-426c-b41f-74d400321bb3>
+Link (3.5-4.0): <https://pickleballkingdom.podplay.app/community/events/329a6c38-b7bd-444c-a577-4c48ed821a36>
+
+#### Veterans Pickleball Tournament
 Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211
 Link: <https://pickleballkingdom.podplay.app/community/events/6d5b1df5-161d-44d4-adcb-36ee042e2894>
