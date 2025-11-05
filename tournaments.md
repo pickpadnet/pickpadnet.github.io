@@ -31,7 +31,10 @@ Link: https://pickleballkingdom.podplay.app/community/events/fa205e4f-9433-4a38-
 
 ## Saturday, November 15, 2025
 
-
+### APA - The Tennessee Masters - PK Liability Waivers - See description for tournament registration
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211
+Link: <https://pickleballkingdom.podplay.app/community/events/4c5034c3-2b01-46ff-8136-b8c547551ddb>
 
 ## Sunday, November 16, 2025
 
