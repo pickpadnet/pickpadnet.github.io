@@ -33,6 +33,14 @@ Link (DUPR 2.7-3.1): <https://pickleballkingdom.podplay.app/community/events/a16
 Link (DUPR 3.1-3.5): <https://pickleballkingdom.podplay.app/community/events/d17183e8-0db2-433c-a0e6-9f15126b068e>  
 Link (DUPR 3.5-3.9): <https://pickleballkingdom.podplay.app/community/events/718b8560-b34f-44d8-a802-fe225d3ca8f2>  
 
+## Monday, November 10, 2025
+
+#### Women's Singles 4.0-4.5
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link: <https://pickleballkingdom.podplay.app/community/events/68ab84bf-5d23-45d5-a54e-5f631d644a5d>  
+
+
 
 ## Friday, November 14, 2025
 
