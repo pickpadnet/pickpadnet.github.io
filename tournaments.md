@@ -5,7 +5,7 @@
 ### Moneyball - 4.0-4.8 Men's Doubles - DUPR Recorded
 Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211
-Link: [](https://pickleballkingdom.podplay.app/community/events/28f5c4e0-ea2d-4904-98a1-bf74d0bb00b1)
+Link: [https://pickleballkingdom.podplay.app/community/events/28f5c4e0-ea2d-4904-98a1-bf74d0bb00b1]
 
 
 
