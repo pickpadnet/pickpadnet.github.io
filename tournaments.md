@@ -42,7 +42,10 @@ Link: <https://pickleballkingdom.podplay.app/community/events/4c5034c3-2b01-46ff
 
 ## Friday, November 21, 2025
 
-
+#### Moneyball - Intermediate Men's Doubles - DUPR Recorded
+Location: Pickleball Kingdom Nashville South
+5035 Harding Pl, Nashville, TN 37211
+Link: <https://pickleballkingdom.podplay.app/community/events/c2687eb4-b638-4135-9145-f2f0a5d65d55>
 
 ## Saturday, November 22, 2025
 
