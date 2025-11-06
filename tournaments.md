@@ -141,7 +141,19 @@ Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/da0
 Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/e9810bf2-9211-4be5-ac14-a06e4d04c2b3>  
 Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/71579308-888a-47d1-9921-0a3b89a209b8>  
 
+## Friday, November 28, 2025
 
+#### Chopped Invitational (High School Age / CoEd)
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link: <https://pickleballkingdom.podplay.app/community/events/21343ebb-2c55-4864-9ff5-bc67104fa077>  
+
+## Sunday, November 30, 2025
+
+#### Intermediate (Under 3.0) DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link: <https://pickleballkingdom.podplay.app/community/events/d57410d6-dded-4e0b-b25b-ace66ba466b1>  
 
 
 <!--
