@@ -73,6 +73,11 @@ Location: Pickleball Kingdom Hamilton
 1100 Negron Dr, Hamilton Township, NJ 08691  
 Link: <https://pickleballkingdom.podplay.app/community/events/8297985c-599a-4383-82ed-db917e17291b>
 
+#### Salvation Army Tournament
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/add330e8-3b51-4ab0-8349-6e13b0e998a6>  
+
 #### APA - The Tennessee Masters
 Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211  
@@ -156,8 +161,23 @@ Location: Pickleball Kingdom Tigard
 Link: <https://pickleballkingdom.podplay.app/community/events/d57410d6-dded-4e0b-b25b-ace66ba466b1>  
 
 
-<!--
-#### 
-Location: 
-Link: 
--->
+## Saturday, January 10, 2026
+
+#### New Year/Winter Tourney
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/cedfcf45-4202-445c-b888-4f9a6bfe27c9>  
+
+## Saturday, February 28, 2026
+
+#### DUPR Collegiate Regional Tournament
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/cf625829-9681-4095-b028-53331fc45238>  
+
+## Saturday, March 28, 2026
+
+#### PBK Spring Tournament
+Location: Pickleball Kingdom Belle Hall  
+680 Long Point Rd, Mt Pleasant, SC 29464  
+Link: <https://pickleballkingdom.podplay.app/community/events/615f781b-ef4e-42ae-ad5e-d838fdacf834>  
