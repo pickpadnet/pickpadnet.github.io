@@ -78,6 +78,14 @@ Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211  
 Link: <https://pickleballkingdom.podplay.app/community/events/4c5034c3-2b01-46ff-8136-b8c547551ddb>
 
+## Sunday, November 16, 2025
+
+#### King & Queen Mixed Tournament
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.5-4.0): <https://pickleballkingdom.podplay.app/community/events/f34b8b2e-6e71-48ef-b1e6-08a359a3d805>  
+Link (DUPR 3.0-3.5): <https://pickleballkingdom.podplay.app/community/events/a82bc0af-6f7a-416b-9133-47354224ed0f>
+
 ## Wednesday, November 19, 2025
 
 #### Century 140+ Fall Classic Tournament
