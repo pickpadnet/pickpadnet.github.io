@@ -118,6 +118,31 @@ Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/39c
 
 ## Sunday, November 23, 2025
 
+#### Women's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/c2e6e93d-5fea-4b82-86ac-121f7c22cde1>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/b041db38-8269-46cd-9318-4a0a6d9c57f9>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/2813585d-f281-4acf-a990-dd4e9fcd5ae6>  
+
+## Monday, November 24, 2025
+
+#### Men's Singles Tournament - Advanced
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link: <https://pickleballkingdom.podplay.app/community/events/9c227a07-d735-4fc5-bd88-e9fa764f428f>  
+
+## Wednesday, November 26, 2025
+
+#### Men's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/da09998b-e4c5-4864-80f0-f3624f5dfb40>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/e9810bf2-9211-4be5-ac14-a06e4d04c2b3>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/71579308-888a-47d1-9921-0a3b89a209b8>  
+
+
+
 
 <!--
 #### 
