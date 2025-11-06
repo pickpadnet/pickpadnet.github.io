@@ -56,6 +56,16 @@ Location: Pickleball Kingdom Nashville South
 5035 Harding Pl, Nashville, TN 37211  
 Link: <https://pickleballkingdom.podplay.app/community/events/fa205e4f-9433-4a38-b825-da6d86dfcc76>
 
+#### Women's DUPR Round Robin Ladder
+Location: Pickleball Kingdom Tigard
+16800 SW 72nd Ave, Tigard, OR 97224  
+Link (DUPR 3.0-3.4): <https://pickleballkingdom.podplay.app/community/events/e6b99493-0d81-43b9-b8d1-83daa5384178>  
+Link (DUPR 3.4-3.8): <https://pickleballkingdom.podplay.app/community/events/15f8f9ce-f8fe-4399-99a8-393edc140158>  
+Link (DUPR 3.8-4.2): <https://pickleballkingdom.podplay.app/community/events/9f983633-a9fd-4229-ad8c-8e3862dd72db>  
+
+
+
+
 ## Saturday, November 15, 2025
 
 #### The Dink Minor League MILP Tournament
